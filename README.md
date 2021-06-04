@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @crypto_HF 
-- 👀 I’m interested in emerging technology
+- 👀 I’m interested in emerging technologies
 - 🌱 I’m currently learning crypto currency and blockchain technology
 - 💞️ I’m looking to collaborate on xrpl and etherum networks
 - 📫 How to reach me @crypto_HF
