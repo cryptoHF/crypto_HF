@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @crypto_HF 
+- 👋 Hi, I’m @crypto_HF :whale2: 
 - 👀 I’m interested in emerging technologies
 - 🌱 I’m currently learning crypto currency and blockchain technology
 - 💞️ I’m looking to collaborate on xrpl and etherum networks
